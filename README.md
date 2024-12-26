@@ -1,2 +1,4 @@
-![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=maxr777&layout=compact&theme=github_dark&langs_count=20)
-<!-- https://github.com/anuraghazra/github-readme-stats -->
+![skibidi](flamingtext_com-102934773.png)
+![sigma](coollogo_com-8885360.png)
+![rizz](coollogo_com-28604134.gif)
+![mog](coollogo_com-22763291.gif)
